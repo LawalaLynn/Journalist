@@ -1,1 +1,1 @@
-# Digital Creator
+# Journalist
